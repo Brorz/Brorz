@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Abror-Risang-Parikesit
+- 👋 Hi, I’m @Brorz
 - 👀 I’m interested in Photography
 - 🌱 I’m currently learning Geophysics
 - 💞️ I’m studying in Gadjah Mada University
