@@ -1,5 +1,4 @@
-![giphy (1)](https://user-images.githubusercontent.com/111769284/188655653-b45bade1-4007-45a5-ba22-ae76341a5c0c.gif)
-![1017499](https://user-images.githubusercontent.com/111769284/188486174-85900d1e-dd82-4d98-983c-731088dab8f3.jpg)
+![1234307](https://user-images.githubusercontent.com/111769284/188656199-5f474352-eb4c-4db5-8e0d-e8e953a568a4.jpg)
 - 👋 Hi, I’m @Brorz
 - 👀 I’m interested in Photography
 - 🌱 I’m currently learning Geophysics
